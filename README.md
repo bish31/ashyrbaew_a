@@ -1,2 +1,2 @@
-# study
-Personal blog, important notes
+# ashyrbaew_a
+Personal blog, important notes, I'm still learning...
